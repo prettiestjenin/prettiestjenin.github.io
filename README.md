@@ -28,6 +28,4 @@ The song "Nothing" by Bruno Major is a lighthearted and romantic love song about
 
 The song "Always" by Daniel Caesar speaks about a past relationship that the singer can't seem to let go of. He acknowledges that there will always be a space for his former lover in his heart and that he hopes time will bring a perspective that allows both of them to look back and laugh at the memories they shared. Overall, "Always" highlights the sentiment that even though the relationship might be over, the singer will always love his former partner and will be there for her, no matter what. He hopes that she feels the same way and that the memories they shared will remain a cherished part of her life. SOURCE: https://www.songtell.com/daniel-caesar/always
 
-	---
-
- 
+---
