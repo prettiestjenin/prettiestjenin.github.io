@@ -12,7 +12,7 @@ The song "bad" by Wave to Earth appears to be a love song about how the singer's
 ---
 
 # 2. delicate - taylor swift
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6Q5xqNkCk7w?si=5xhOEt_mKim9qUpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tCXGJQYZ9JA?si=BfZTPpMKnU-L_Raw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 "Delicate" by Taylor Swift is a song about the difficulty of being vulnerable with someone. In the song, she expresses the emotions and uncertainty that come with being interested in someone, but not knowing if they feel the same way and not knowing if it is the right time to act on it. Despite this, she is still willing to take a chance and put herself out there, knowing that the relationship may be delicate and fragile, but is worth the risk. The chorus conveys the sentiment of not knowing what her partner is thinking and feeling, but still wanting to let him know how she feels before it is too late. SOURCE: https://www.songtell.com/taylor-swift/delicate
 
