@@ -1,10 +1,18 @@
 ### LOVESTRUCK
 
-**Hi! this is a compilation of my top 5 favorite songs at the moment.**
+**a compilation of** *my top 10 favorite songs at the moment* 
 
 ---
 
-# 1. bad - wave to earth
+# 1. superpowers - daniel caesar
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TKjh9XO2jNc?si=lubyRa9gMi5ZkepI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+The song "Superpowers" by Daniel Caesar is a tribute to the inherent and unique abilities that each person possesses. The song celebrates the special gifts that make each individual stand out and shine, likening them to superpowers. Overall, the song is a call to embrace one's individuality and recognize that everyone has something exceptional to offer. The repeated line, "You're the main character now," emphasizes that each person is the star of their own life, and they should embrace their uniqueness and use their superpowers to make their story a great one. SOURCE: https://www.songtell.com/daniel-caesar/superpowers
+
+---
+
+# 2. bad - wave to earth
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6Q5xqNkCk7w?si=5xhOEt_mKim9qUpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
@@ -12,7 +20,7 @@ The song "bad" by Wave to Earth appears to be a love song about how the singer's
 
 ---
 
-# 2. delicate - taylor swift
+# 3. delicate - taylor swift
 <iframe width="560" height="315" src="https://www.youtube.com/embed/tCXGJQYZ9JA?si=BfZTPpMKnU-L_Raw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
@@ -20,7 +28,7 @@ The song "bad" by Wave to Earth appears to be a love song about how the singer's
 
 ---
 
-# 3. urs - niki zefanya
+# 4. urs - niki zefanya
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6Q9YfpC6U4U?si=MdzTRfb6bJr7-9o3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
@@ -28,7 +36,7 @@ The song "bad" by Wave to Earth appears to be a love song about how the singer's
 
 ---
 
-# 4. nothing - bruno major
+# 5.. nothing - bruno major
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ucRVDoFkcxc?si=mfWra5NirYh_RIYn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
@@ -36,8 +44,38 @@ The song "Nothing" by Bruno Major is a lighthearted and romantic love song about
 
 ---
 
-# 5. always - daniel caesar
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uo33QyBaZ4w?si=Q_WmIxT79s-gnIm7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+# 6. cherry wine - grent perez
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1o00J04ThXQ?si=dIxlR6qYxiyWSV71" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+"Cherry Wine" by Grent Perez is a romantic, dance anthem. It depicts the story of two people who meet on the dancefloor, and feel the chemistry between them. The singer invites the person to join him in the dancing, and urges them to take their time getting to know each other by having a few drinks. The chorus encourages the couple to 'dance the night away', and make the world spin slower, as they take the time to get to know each other over some cherry wine. SOURCE: https://www.songtell.com/grentperez/cherry-wine
 
-The song "Always" by Daniel Caesar speaks about a past relationship that the singer can't seem to let go of. He acknowledges that there will always be a space for his former lover in his heart and that he hopes time will bring a perspective that allows both of them to look back and laugh at the memories they shared. Overall, "Always" highlights the sentiment that even though the relationship might be over, the singer will always love his former partner and will be there for her, no matter what. He hopes that she feels the same way and that the memories they shared will remain a cherished part of her life. SOURCE: https://www.songtell.com/daniel-caesar/always
+---
+
+# 7. bad idea right? - olivia rodrigo
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dj9qJsJTsjQ?si=RaKJGEXV-al1YYDw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+"​bad idea right?" by Olivia Rodrigo explores the conflicted emotions and desires that arise when encountering an ex-partner. The song portrays a scenario where the protagonist hasn't heard from their ex in months, but when they receive a call, it ignites a mixture of nostalgia, curiosity, and confusion. Overall, "​bad idea right?" depicts the tug-of-war between past emotions and the desire for reconnection. It explores the vulnerability, confusion, and temptation that arise when encountering an ex-lover, highlighting the internal struggle to resist an enticing but potentially destructive path. 
+SOURCE: https://www.songtell.com/olivia-rodrigo/bad-idea-right
+
+---
+
+# 8. keep driving - harry styles
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbcmsEIHWeE?si=VW5HK5rcOJNdTVX_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+The song "Keep Driving" by Harry Styles is a reflection on life's journey and the idea of embracing the unknown and uncertain paths that life can take you on. The lyrics describe a journey through many different scenarios – from a black-and-white film camera to a riot in America. The chorus urges the listener to take a risk and follow their instinct despite not knowing what lies ahead, by asking "Should we just keep driving?" The message of the song is to stay positive and keep taking risks, as life can sometimes be unpredictable, but ultimately it is worth it to not give up and keep going. SOURCE: https://www.songtell.com/harry-styles/keep-driving
+
+---
+
+# 9. about you - the 1975
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tGv7CUutzqU?si=F90ktOI7sA0fMgvH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+The song "About You" by The 1975 is a song about nostalgia and longing. The narrator is reminiscing about someone from the past and trying to remember how they met. Despite the time that has passed, he still has a deep connection to this person, and wishes he could find his way back to them. The bridge emphasizes his regret of not remembering something important about this person. The chorus highlights his feelings of uncertainty, wondering whether his memories of this person have faded away. The song ultimately expresses a desire to stay connected even when memories have faded, and to never forget the importance of the time they shared together. SOURCE: https://www.songtell.com/the-1975/about-you
+
+---
+
+# 10. sweet nothing - taylor swift 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rn0brgg2BpI?si=t3K67VwH6lfqG6Gy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+"Sweet Nothing" by Taylor Swift is a song about appreciation for the simple moments in life. It is an expression of love and gratitude for someone special, who is always on her mind when life's demands and chaos begin to overtake her. The lyrics reference a pebble the two picked up in Wicklow, Ireland, in July and how this small token of appreciation can bring her comfort and peace. The song also speaks to the pressures the narrator feels of being an adult and society's expectations, but being able to run home and escape to the safety of someone's love. The chorus expresses that all the protagonist ever wanted was "sweet nothing," or simple moments of love and companionship. SOURCE: https://www.songtell.com/taylor-swift/sweet-nothing
+
+---
