@@ -1,6 +1,6 @@
 ### LOVESTRUCK
 
-> ** Hi! this is a compilation of my top 5 favorite songs at the moment.**
+**Hi! this is a compilation of my top 5 favorite songs at the moment.**
 
 ---
 
