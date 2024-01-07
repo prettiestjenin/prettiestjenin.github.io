@@ -26,7 +26,7 @@ The song "bad" by Wave to Earth appears to be a love song about how the singer's
 ---
 
 # 4. nothing - bruno major
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6Q9YfpC6U4U?si=MdzTRfb6bJr7-9o3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ucRVDoFkcxc?si=mfWra5NirYh_RIYn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 The song "Nothing" by Bruno Major is a lighthearted and romantic love song about finding joy and contentment in spending quiet and quality time with a romantic partner doing seemingly mundane activities. The lyrics emphasize the beauty of being in the presence of someone special and the happiness that can be found in the simple, often overlooked moments. The singer expresses their appreciation for their partner's presence and affection, and shares that there is no substitute for spending time with someone they love. SOURCE: https://www.songtell.com/bruno-major/nothing
 
