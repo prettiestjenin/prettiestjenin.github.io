@@ -1,7 +1,7 @@
 # LOVESTRUCK
 ## Iriz Jenin P. Fucio - 9 Chabanel 
 
-*a compilation of my top 10 favorite songs and movies at the moment* 
+*a compilation of my top 10 favorite songs at the moment* 
 
 ---
 ## Favorite Songs
