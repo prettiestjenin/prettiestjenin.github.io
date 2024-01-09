@@ -1,16 +1,16 @@
 # LOVESTRUCK
 
-**a compilation of** *my top 10 favorite songs and movies at the moment* 
+*a compilation of my top 10 favorite songs and movies at the moment* 
 
 ---
+## Favorite Songs
 
 ### 1. superpowers - daniel caesar
 <iframe width="560" height="315" src="https://www.youtube.com/embed/TKjh9XO2jNc?si=lubyRa9gMi5ZkepI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 The song "Superpowers" by Daniel Caesar is a tribute to the inherent and unique abilities that each person possesses. The song celebrates the special gifts that make each individual stand out and shine, likening them to superpowers. Overall, the song is a call to embrace one's individuality and recognize that everyone has something exceptional to offer. The repeated line, "You're the main character now," emphasizes that each person is the star of their own life, and they should embrace their uniqueness and use their superpowers to make their story a great one. 
-SOURCE: https://www.songtell.com/daniel-caesar/superpowers
-
+SOURCE:https://www.songtell.com/daniel-caesar/superpowers
 ---
 
 ### 2. bad - wave to earth
